@@ -1,6 +1,6 @@
 ##Name: Gill Abada - AR
 
-##Three words to describe me:
+##Three words to describe alternate reality me:
 - Lazy
 - Loud
 - Short
